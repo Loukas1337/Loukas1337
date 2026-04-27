@@ -102,7 +102,7 @@ I am open to opportunities where I can work as:
 
 - Junior developer (Backend or Full Stack)
 
-Looking for environments that value **quality, continuous learning, and real-world impact**.
+Seeking environments that prioritize excellence, ongoing development, and meaningful results.
 
 ---
 
